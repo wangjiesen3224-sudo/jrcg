@@ -8,6 +8,10 @@
 
 还在等待什么？如果你已经厌倦了千篇一律的娱乐资讯，如果你希望随时发现值得关注的热门故事，如果你期待拥有一个能够释放好奇心、丰富闲暇生活的娱乐空间，那么不妨从今日吃瓜开始新的探索。让热门事件成为茶余饭后的谈资，让精彩故事点亮平凡的日常，让每一次浏览都充满发现的期待。走进今日吃瓜，探索更多有趣话题，发现不同角度的精彩内容，开启属于自己的沉浸式娱乐吃瓜之旅！
 
+今日吃瓜推特：[https://x.com/jinrichigua888](https://x.com/jinrichigua888)、[https://x.com/KISSAVTV](https://x.com/KISSAVTV)
+
+今日吃瓜Bluesky：[https://bsky.app/profile/jrcg888.bsky.social](https://bsky.app/profile/jrcg888.bsky.social)
+
 [https://jrcg365.com/](https://jrcg365.com)
 
 [https://jrcg365.com/ai-drama](https://jrcg365.com/ai-drama)
